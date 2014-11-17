@@ -1,6 +1,3 @@
-ProjectNieuweGroetenUit
-=======================
-
 ProjectGroetenUitNederland
 ==========================
 
