@@ -1,7 +1,7 @@
 ProjectGroetenUitNederland
 ==========================
 
-layed a little roll in a nation wide Traveling photo exposition 'Nieuwe Groeten Uit Nederland' (New Greetings From The Netherlands). One of my photo's was used to illustrate the 'air castle'.
+Played a little roll in a nation wide Traveling photo exposition 'Nieuwe Groeten Uit Nederland' (New Greetings From The Netherlands). One of my photo's was used to illustrate the 'air castle'.
 
 I'm an avid admirer of the Enschedese School of art's (http://goo.gl/xs1fMv). In short it's was a group of artist that made art that was send via the post. I do a lot with the concept "post" in my photograpy.
 
